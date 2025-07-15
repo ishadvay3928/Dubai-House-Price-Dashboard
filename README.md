@@ -127,7 +127,10 @@ Dubai-House-Price-Analysis/
 ## 📬 Contact
 
 **Isha Chaudhary**
+
 📧 \[[ishadvay3928@gmail.com](mailto:ishadvay3928@gmail.com)]
+
 🔗 [LinkedIn](https://www.linkedin.com/in/ishachaudhary18)
+
 📍 Noida, India
 
