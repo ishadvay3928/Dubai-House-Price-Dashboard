@@ -128,7 +128,7 @@ Dubai-House-Price-Analysis/
 
 **Isha Chaudhary**
 
-📧 \[[ishadvay3928@gmail.com](mailto:ishadvay3928@gmail.com)]
+📧 [ishachaudhary3928@gmail.com](mailto:ishachaudhary3928@gmail.com)
 
 🔗 [LinkedIn](https://www.linkedin.com/in/ishachaudhary18)
 
